@@ -1,2 +1,2 @@
 # Relogio
-preciso acabar
+preciso acabar , estar em andamento 
